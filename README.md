@@ -7,5 +7,5 @@
 - 💬 Ask me about Financial Analysis/ Technical Analysis using AI/ML
 - 📫 How to reach me:
 - bivas9279@gmail.com
-- +917002388940
+- 
 
